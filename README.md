@@ -1,4 +1,5 @@
-https://telegra.ph/file/ce48de4856694e9883717.jpg
+
+
 
 Всем ку я хз че написать 
 

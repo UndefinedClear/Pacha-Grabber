@@ -1,4 +1,1 @@
-АКТУАЛЬНЫЙ СТИЛЛЕР - https://github.com/Pachatkas/Pacha-GrabberZ
-АКТУАЛЬНЫЙ СТИЛЛЕР - https://github.com/Pachatkas/Pacha-GrabberZ
-АКТУАЛЬНЫЙ СТИЛЛЕР - https://github.com/Pachatkas/Pacha-GrabberZ
-АКТУАЛЬНЫЙ СТИЛЛЕР - https://github.com/Pachatkas/Pacha-GrabberZ
+Надеюсь что я проверил на вирусы хорошо, вы тоже проверьте!!!!!!!!!!!!!
